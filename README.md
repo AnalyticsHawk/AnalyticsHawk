@@ -36,7 +36,7 @@
 ## 📫 Connect With Me
 - 💼 [Website](https://www.drmarciahawk.com)  
 - 🐦 [Twitter](https://twitter.com/drmarciahawk)  
-- 💡 [LinkedIn](https://www.linkedin.com/in/drmarciahawk)  
+- 💡 [https://www.linkedin.com/in/marciaphawk/)  
 
 ---
 
